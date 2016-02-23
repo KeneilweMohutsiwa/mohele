@@ -1,0 +1,1 @@
+Mohele is a traditional Board game in Botswana and probably also played in South Africa.
